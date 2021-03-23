@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Stavros
-- 👀 Currently learning what fascninates me
+- 👀 Currently learning what fascinates me
